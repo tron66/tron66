@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @tron66
-- 👀 I’m interested in life
+- 👀 I’m interested in not having a life
 - 🌱 I’m currently learning code/hack
 - 💞️ I’m looking to collaborate on programming
 - 📫 How to reach me ...tusiime.ronald@gmail.com/https://t.me/tron_ron
